@@ -1,1 +1,0 @@
-# Free-fire-Gill-join-and-live-API
